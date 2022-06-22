@@ -10,7 +10,11 @@ After you have your mod ready, you can launch your Minecraft in 1.8.9. When you 
 
 *  You can change the delay to your liking up to 10 minutes (Not recommended for most profit).
 
-Don't macro and have fun racing to the **#1!!!**
+Don't macro and have fun grinding to be the best player on all Hypixel Skyblock!!!**
+
+
+
+Made with love by Juicy❤️❤️❤️
 
 
 

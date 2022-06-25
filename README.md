@@ -14,7 +14,7 @@ Don't macro and have fun grinding to be the best player on all Hypixel Skyblock!
 
 
 
-Made with love by Juicy❤️❤️❤️
+Made with love by Juicy❤️
 
 
 
@@ -27,4 +27,4 @@ Made with love by Juicy❤️❤️❤️
 
 
 
-This mod litterally took ages since it's only our second :/
+This mod litterally took ages since it's only my second :/
